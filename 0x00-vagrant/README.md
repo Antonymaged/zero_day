@@ -1,1 +1,1 @@
-Linux
+i got tired of it
